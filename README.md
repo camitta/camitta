@@ -8,5 +8,6 @@
 - I’m looking to connect with fellow coding newbies, especially womxn/BIPOC :rainbow:
 - How to reach me: allyson.camitta@gmail.com :pager:
 - :love_letter: Pronouns: she/her or they/them 
-- Fun fact: I make music under the name shallowhalo :headphones: :musical_keyboard: :microphone:
+- Fun fact: I make music under the name [shallowhalo](https://open.spotify.com/track/52GTKwxCBdOEqMDUIU7IR4?si=sZjyvN3KSMq1tsVQVcweGg) :headphones: :musical_keyboard: :microphone:
+
 
