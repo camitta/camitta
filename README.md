@@ -2,7 +2,7 @@
 
 
 
-- Currently working on pivoting my career from fashion :handbag: to tech :floppy_disk:
+- Pivoting my career from fashion :handbag: to tech :floppy_disk:
 - Learning JavaScript :soon:
 - Looking to collaborate on beginner friendly projects :seedling: :hatching_chick:
 - I’m looking to connect with fellow coding newbies, especially womxn/BIPOC :rainbow:
